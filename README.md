@@ -1,2 +1,2 @@
-# Azurrz-Mod-Menu-Copyz
-Mods Menu copies for quest 2 and 3!
+# AzurrBlueFirez-Mod-Menu-Copys
+Platforms and more. ಡ ͜ ʖ ಡ You'll see once you look!
